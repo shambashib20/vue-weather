@@ -15,14 +15,63 @@ fkfdkdffkdkf
 ```
 npm run build
 ```
+sdfsfsdfdsdsfsdf
 
+dffdgdfgdgfdg
+dfgdfgdfg
+efrerferferferfer
 ### Lints and fixes files
 ```
-npm run lint
+npm run lnhjkmjk,mkjmjk
 ```
 //fmfmfmf
 ### Customize configuration
 See [Configuration Reference](https://cli.vuejs.org/config/).
 
+wdeewdewdewwed
+huihiuhiuhiuhiuh
+cdscdscsdc
 
+fredfgertergerg
 cfhffhcfhnchfchfhchfcnfhcf
+llllllllllllllllllllllllllllll
+llllloooooo
+jkjkjkjkj
+hjbhbhbhbh
+
+dvflfdlfdlvl
+fdokgmmfgmmhfm
+fvdfvdfvfdv
+sfogmgf
+
+
+
+mkmklmlmlkmlmk
+
+hugyg
+
+
+ggkhfmgkhmfgkhmfg
+mkmkdmskvsdkvdsvmdsvsddsv
+
+grtgrtgrt
+hktmhhymthotymhomytohmoytmhoytmohyomhtyom
+
+sdcsdcsdcsdcsd
+
+fkgkdmhkfmkfh
+typhltphlytplhytphyt
+kgmkgmkkhmkhfmkhffssdfsdfs
+
+dvdfvdfvfdvdfvdf
+hgnnghnghn
+
+mjmjnmjjs
+dfvdfvfdv
+
+sdcsdsdc
+rtgrtgrtgrt
+
+
+sdcdscsdc
+dfvgmdmkfvmfgkmfgb
